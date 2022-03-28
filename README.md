@@ -1,1 +1,0 @@
-# temczaooq3mg
